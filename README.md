@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+I'm Luvlyn--- I'm in my 4th year of Sustainable Chemistry Co-op ^ ^. 
+Looking forward to learning about Quantum Mechanics in this course!~ 
+
 <!--
 **LuvlynK/LuvlynK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
